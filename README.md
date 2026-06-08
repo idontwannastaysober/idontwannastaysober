@@ -7,7 +7,7 @@
 
 <h5 align="center"
 
-  ![](https://komarev.com/ghpvc/?username=fleta-z&color=870c8a&style=plastic&label=⠀ㅤspyguests.ㅤㅤ)
+  ![](https://komarev.com/ghpvc/?username=fleta-z&color=870c8a&style=plastic&label=⠀ㅤconnections.ㅤㅤ)
 
 
   ![](https://file.garden/ad74Ygx5M13uwIEb/6%20easter%20eggs%20up%20my%20asshole.PNG)
