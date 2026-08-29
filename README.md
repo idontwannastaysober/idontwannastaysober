@@ -1,28 +1,26 @@
 <h3 align="center"
     
-  ${\textsf{\color{#b10a96} wip yo. }}$
+  ${\textsf{\color{#ffffff} 𝗛𝗮𝘃𝗶𝗻𝗴 𝗮 }}$ ${\textsf{\color{#faa3d7}  𝗙𝗔𝗕𝗨𝗟𝗢𝗨𝗦 }}$ ${\textsf{\color{#ffffff} 𝘁𝗶𝗺𝗲? }}$
   <h5 align="center"
 
-♱
+♡
 
 <h5 align="center"
 
-  ![](https://komarev.com/ghpvc/?username=fleta-z&color=870c8a&style=plastic&label=⠀ㅤconnections.ㅤㅤ)
+  ![](https://komarev.com/ghpvc/?username=fleta-z&color=faa3d7&style=plastic&label=⠀ㅤfabulous!~ㅤㅤ)
 
 
-  ![](https://file.garden/ad74Ygx5M13uwIEb/6%20easter%20eggs%20up%20my%20asshole.PNG)
+  <img src="https://file.garden/ad74Ygx5M13uwIEb/rememblance.PNG">
 
 <h5 align="center"
 
- ${\textsf{\color{#b10a96} ~ 𝒔𝒑𝒂𝒎 𝒇𝒐𝒍𝒍𝒐𝒘𝒊𝒏𝒈 𝒂𝒄𝒄𝒐𝒖𝒏𝒕. 𝒃𝒍𝒐𝒄𝒌 𝒊𝒇 𝒖𝒏𝒘𝒂𝒏𝒕𝒆𝒅 ~}}$<br>
+ ${\textsf{\color{#faa3d7} 𝘀𝗽𝗮𝗺 𝗳𝗼𝗹𝗹𝗼𝘄 }}$ ${\textsf{\color{#ffffff} 𝗮𝗰𝗰 }}$ ${\textsf{\color{#faa3d7}ㅤ𝗯𝗹𝗼𝗰𝗸}}$  ${\textsf{\color{#ffffff} 𝗶𝗳 𝘂𝗻𝘄𝗮𝗻𝘁𝗲𝗱}}$<br>
 
 
   <h5 align="center"
 
-♱
+♡
 
-   [directory](https://rentry.co/anondirectory)ㅤㅤ[main acc](https://github.com/doomspiredefense)
+   [main acc](https://github.com/doomspiredefense)
 
- <h5 align="center"
 
-♱
